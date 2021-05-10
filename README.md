@@ -1,1 +1,1 @@
-[![aakhilv](https://user-images.githubusercontent.com/65052071/116831895-b91bd900-ab77-11eb-8cae-cc0f1b260ee0.png)](https://aakhilv.me)
+[![aakhilv](https://user-images.githubusercontent.com/65052071/117678818-5c22b300-b175-11eb-8036-666e376fcf8a.png)](https://aakhilv.me)
