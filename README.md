@@ -1,3 +1,3 @@
-💥 [Check out **api.aakhilv.me**](https://api.aakhilv.me) 💥
+💥 [Check out **api.akhilv.co**](https://api.akhilv.co) 💥
 
-[![aakhilv.me](https://aakhilv.me/assets/og.png)](https://aakhilv.me)
+[![akhilv.co](https://akhilv.co/assets/og.png)](https://akhilv.co)
